@@ -1,4 +1,4 @@
-# MY PICTURE ON WEB3
+# MY PICTURES ON WEB3
 
 - 0xmaulia (1).jpg
 - 0xmaulia (2).jpg
